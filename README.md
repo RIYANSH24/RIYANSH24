@@ -2,7 +2,8 @@
 - 👀 I’m interested in Front End Development
 - 🌱 I’m currently learning Digital Marketing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me there is my instagram profile :-https://www.linkedin.com/in/riyansh-gupta-2a49b8315/ 
+- 📫 How to reach me there is my linked in  profile :-https://www.linkedin.com/in/riyansh-gupta-2a49b8315/
+- and here is my instagram profile :- https://www.instagram.com/riyanshxgupta17?igsh=MWNkMmRqcnJrYTBiMQ==
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
